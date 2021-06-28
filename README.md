@@ -4,4 +4,3 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me -->
 E-mail : wrkofic@gmail.com
-LinkedIn : https://www.linkedin.com/in/anuj-shukla-aba470196
